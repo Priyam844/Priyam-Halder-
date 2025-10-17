@@ -57,7 +57,7 @@ Every project I create reflects my desire to **learn, improve, and inspire other
 
 ## 🧭 Let’s Connect  
 
-📧 **Email:** priyamhalder0403@gmail.com  
+📧 **Email:** priyamhalder844@gmail.com  
 💼 **LinkedIn:** [linkedin.com/in/priyamhalder](https://linkedin.com/in/priyamhalder)  
 💻 **GitHub:** [github.com/priyamhalder](https://github.com/priyamhalder)  
 
